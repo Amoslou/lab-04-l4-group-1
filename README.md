@@ -2,7 +2,7 @@
 
 ## Names
 * Jack McGrath
-* Amous Lou
+* Amos Lou
 * Olivia Joe-West
 
 ## Activity
